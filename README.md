@@ -1,0 +1,2 @@
+# CHATGPT GO IZMISLI XD
+ :D
